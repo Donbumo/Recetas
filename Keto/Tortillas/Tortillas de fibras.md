@@ -9,9 +9,16 @@
 * Agua hirviendo: **280 g**
 * Sal: al gusto
 
-> Nota: No usaste cal en esta tanda.
+> Nota: No usaste cal pero mejora el aspecto y sabor.
 
----
+## Preparación (resumen)
+
+* Mezcla secos.
+* Agrega el agua hirviendo y mezcla hasta formar masa.
+* Reposa 10 min (gel).
+* Forma 8 bolitas, aplasta/prensa entre plásticos.
+* Comal muy caliente: 30–40 s / 20–30 s / 10–15 s.
+* Apila y tapa 5–10 min.
 
 ## Macros (calculados con tus etiquetas)
 
